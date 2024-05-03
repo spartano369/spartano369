@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on develop games and desing 3d
 - 📫 How to reach me text on moises_zacarias@hotmail.com
 - 😄 Pronouns: He, i dont complicate myself
-- ⚡ Fun fact: I really funny guy-.
+- ⚡ Fun fact: I really funny guy and i wanna sing gutural :C
 
 <!---
 spartano369/spartano369 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
